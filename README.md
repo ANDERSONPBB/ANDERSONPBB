@@ -1,4 +1,4 @@
-## Oiii eu sou a Anderson nascimento , programação e tecnologia!
+## Oiii eu sou  Anderson nascimento , programação e tecnologia!
 
 
 <div style="display: inline_block"><br>
